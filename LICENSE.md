@@ -1,4 +1,4 @@
-# 
+# Official dexscreener sniper bot tools for Mac OS | Free dexscreener sniper bot tools for PC Windows. Featuring market orders and low latency — optimized for maximum performance on every platform.
 
 
 
